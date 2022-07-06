@@ -1,0 +1,1 @@
+# ayt-cografya-multi-soru-bankasi-32
